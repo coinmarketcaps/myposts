@@ -2,7 +2,7 @@
 
 [Home](https://coinmarketdo.com/)_/_[Crypto Gem](https://coinmarketdo.com/crypto-gem/)_/_If You Bought this Nft 7 Days ago for $1,000… #crypto #nft #shorts
 
-[Crypto Gem](https://coinmarketdo.com/crypto-gem/)
+[Crypto Gem]([https://coinmarketdo.com/crypto-gem/](https://www.google.com/url?rct=j&sa=t&url=https://coinmarketbag.com/&cd=CAAYADIaNDgxYTk3OWFmMTg3NDA3ZDpjb206ZW46VVM&ct=ga&usg=AOvVaw3eauHLmSc6WrQFG2SAdNnO))
 
 If You Bought this Nft 7 Days ago for $1,000… #crypto #nft #shorts
 ==================================================================
