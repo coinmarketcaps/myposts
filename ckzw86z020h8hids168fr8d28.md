@@ -15,7 +15,7 @@ If You Bought this Nft 7 Days ago for $1,000… #crypto #nft #shorts
 
 <iframe width="580" height="385" src="https://www.youtube.com/embed/g_Utz5hhHXM?rel=0&amp;cc_load_policy=1&amp;hl=en&amp;modestbranding=1"></iframe>
 
-[source](https://www.youtube.com/watch?v=g_Utz5hhHXM)
+[source](https://www.google.com/url?rct=j&sa=t&url=https://coinmarketbag.com/&cd=CAAYADIaNDgxYTk3OWFmMTg3NDA3ZDpjb206ZW46VVM&ct=ga&usg=AOvVaw3eauHLmSc6WrQFG2SAdNnO)
 
 ### _Related_
 
